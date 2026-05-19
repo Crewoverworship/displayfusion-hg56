@@ -1,4 +1,4 @@
-# 
+# professional Advanced SystemCare PC版 扩展 是最佳 Advanced SystemCare PC版 扩展，集成 注册表清理 和 隐藏桌面图标。安全、可靠、优化，性能最大化。
 
 
 
